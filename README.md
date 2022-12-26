@@ -1,0 +1,2 @@
+# kimlik
+nasıl öğrene bilirtim
